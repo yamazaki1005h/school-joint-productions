@@ -1,2 +1,0 @@
-# school-joint-productions
-test
